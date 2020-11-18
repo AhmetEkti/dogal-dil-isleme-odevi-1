@@ -1,6 +1,7 @@
-# dogal-dil-isleme-odevi-1
+# ÖDEVİ YAPANLAR
 
-ÖDEVİ YAPANLAR
+# AHMET EKTI
+# BASAK KIZILAY
 
-AHMET EKTI
-BASAK KIZILAY
+
+
